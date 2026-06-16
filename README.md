@@ -1,1 +1,0 @@
-# psyeagle-v5-bot-wathsapp
